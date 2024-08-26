@@ -9,4 +9,4 @@ utilizo esse espaço para minha organizaçao e compartilhamento dos meus projeto
 voce pode entrar em contato comigo 📫
 @christianpaulodasilva48@gmail.com 
 
-
+https://media.tenor.com/QYqDLq-DHHEAAAAi/technologist-joypixels.gif
